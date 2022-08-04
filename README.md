@@ -1,1 +1,0 @@
-# Web-parser-igromania.ru
